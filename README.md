@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...you ig
 - 💞️ I’m looking to collaborate with ... you ig
 - 📫 How to reach me ... reach my dm
-- 😄 Pronouns: ...see/the/maut
+- 😄 Pronouns: ...she/they/m/a/u/t
 - ⚡ Fun fact: ... i like you ig
 
 <!---
